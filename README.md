@@ -16,7 +16,7 @@
 - [Twitter](https://twitter.com/tonprofil) : @mariebuteau9
 
 ## 😄 Pronoms : 
-- Il 
+- Elle
 
 ## ⚡ Fait amusant :
 - J'adore essayer de nouvelles recettes de cuisine et je passe beaucoup de temps à expérimenter en cuisine ! J'aime la musique, les voyages.

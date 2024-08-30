@@ -13,12 +13,11 @@
 - Des initiatives éducatives qui utilisent la programmation pour enseigner de nouvelles compétences.
 
 ## 📫 Comment me joindre...
-- [Email](mailto:ton.email@example.com) (remplace par ton adresse email)
-- [LinkedIn](https://www.linkedin.com/in/tonprofil) (remplace par ton profil LinkedIn)
-- [Twitter](https://twitter.com/tonprofil) (remplace par ton profil Twitter)
+- [Twitter](https://twitter.com/tonprofil) : @mariebuteau9
 
-## 😄 Pronoms :...
-- Il/Lui ou Elle/Elle (choisis les pronoms que tu préfères)
+## 😄 Pronoms : 
+- Il 
 
 ## ⚡ Fait amusant :
-- J'adore essayer de nouvelles recettes de cuisine et je passe beaucoup de temps à expérimenter en cuisine !
+- J'adore essayer de nouvelles recettes de cuisine et je passe beaucoup de temps à expérimenter en cuisine ! J'aime la musique, les voyages.
+- J'aime écrire des poèmes/des poésies
